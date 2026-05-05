@@ -1,2 +1,2 @@
 # Kishu-Inu-Creative
-Kishu Inu creative assets
+Kishu Inu Creative and Copywritten Assets
